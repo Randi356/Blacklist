@@ -1,1 +1,1 @@
-## What do you call a boy who stopped digging holes? Douglas.
+## I'm glad I know sign language, it's pretty handy.
